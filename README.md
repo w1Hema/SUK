@@ -14,13 +14,3 @@
 ![Course_Certificate_Ar (1)-1](https://github.com/user-attachments/assets/6f314071-c9d5-4b1d-ac06-4b3b2a5d0f43)
 
 ![C-329361](https://github.com/user-attachments/assets/49baf318-6267-4f7e-a636-3aba4f0bc37b)
-
-[Coursera 85VNVXGDHH7L.pdf](https://github.com/user-attachments/files/16566340/Coursera.85VNVXGDHH7L.pdf)
-
-[C-1018415.pdf](https://github.com/user-attachments/files/16566343/C-1018415.pdf)
-
-[CCNA.pdf](https://github.com/user-attachments/files/16566348/CCNA.pdf)
-
-[Introduction_to_Cybersecurity_Badge20240609-9-b6rk8d.pdf](https://github.com/user-attachments/files/16566350/Introduction_to_Cybersecurity_Badge20240609-9-b6rk8d.pdf)
-
-[Networking_Devices_and_Initial_Configuration_Badge20240707-7-5xx1p0.pdf](https://github.com/user-attachments/files/16566351/Networking_Devices_and_Initial_Configuration_Badge20240707-7-5xx1p0.pdf)
